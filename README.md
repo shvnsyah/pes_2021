@@ -12,6 +12,7 @@
 
 6. datang sesuai jadwal pertandingan
 
+7. waktu pertandingan 8 menit (1 pertandingan)
 
 
 
